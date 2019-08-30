@@ -1,12 +1,15 @@
 # [Té helado de durazno](https://minimalistbaker.com/perfect-peach-iced-tea/)
 
 ## Ingredients
-US Customary - Metric
-### SIMPLE SYRUP
+
+> US Customary - Metric
+
+### Simple syrup
 * 1 cup organic cane sugar
 * 1 cup water
 * 2 ripe peaches (thinly sliced // plus more for serving)
-### TEA
+
+### Tea
 * 2-3 Tbsp loose leaf black tea (3-4 tea bags // depending on how strong you prefer it)
 * 8 cups filtered water
 
