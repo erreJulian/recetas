@@ -1,12 +1,14 @@
 # [Budín de naranja](https://www.paulinacocina.net/budin-de-naranja/8585)
 
 ## Ingredientes:
-> mirá que poquitos
-* 2 naranjas
-* 2 tazas de harina leudante (o harina común + 2 cditas. de polvo para hornear)
-* 1 taza de azúcar
-* 3 huevos
-* 1 taza de aceite neutro (de girasol o maíz)
+
+> Mirá que poquitos:
+
++ 2 naranjas
++ 2 tazas de harina leudante (o harina común + 2 cditas. de polvo para hornear)
++ 1 taza de azúcar
++ 3 huevos
++ 1 taza de aceite neutro (de girasol o maíz)
  
 ## Instrucciones
 
