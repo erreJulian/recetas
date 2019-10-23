@@ -13,7 +13,7 @@
 =
 ## Ing## Ingredientes:
 
-Mirá que poquitos:
+> Mirá que poquitos:
 
 + 2 naranjas
 + 2 tazas de harina leudante (o harina común + 2 cditas. de polvo para hornear)
