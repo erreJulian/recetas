@@ -1,4 +1,4 @@
-# Whole wheat pancakes
+# [Whole wheat pancakes](https://www.skinnytaste.com/whole-wheat-pancakes/)
 
 ## Ingredients
 + 2 cups white whole wheat flour, I use King Arthur
