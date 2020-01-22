@@ -1,0 +1,77 @@
+
+Easy Kung Pao Chicken
+
+
+A quick and easy kung pao chicken that only requires 20 minutes to prepare. Use this method and you’ll always create moist and tender chicken with no fuss!
+Although I wrote about kung pao chicken a long time ago, I decided to create an easier version after I posted the all-purpose chili garlic sauce.
+Why create another kung pao chicken when there are millions already out there? Because I wanted to create the quickest way with the best kung pao flavor.
+Why this recipe?
+
+* It only takes 20 minutes (15 minutes if you use already-roasted peanuts) to get the dish on the table, while the average recipes takes 30 minutes to an hour.
+* It uses only 10 ingredients, while other recipes use 12 to 18 ingredients.
+* You don’t need to use a wok.
+* It’s a foolproof method for tender and moist chicken.
+* You can easily apply the same method to cook kung pao shrimp, kung pao beef, kung pao tofu, etc.
+
+By the way, I added cucumber in this recipe. This makes it much like the classic Beijing style kung pao chicken. Cube the cucumber into small pieces and add it at the end. You’ll be surprised how flavorful it tastes. It also adds a great crisp texture to the whole dish.
+You might complain that it’s too much trouble to cook the chili garlic sauce in the first place! If you only cook Sichuan food once a month, maybe this is not the best choice for you. In this case, go straight to my older version of kung pao chicken which doesn’t require that sauce.
+However, if you like spicy food and cook it more than once a month, try out the master sauce, and you’ll thank me later.
+A few words about this super sauce. It is a basic sauce to help you create super flavorful spicy dishes effortlessly. I use it as a master sauce to create various Sichuan style sauces, by adding it to a dish at the end of cooking, or simply by adding a few more ingredients to it to create a new sauce.
+
+The great things about the master sauce are:
+* It saves you 10 minutes every time you cook a Sichuan style stir-fry.
+* It helps you to create no-fail spicy dishes that your family loves.
+* The sauce will keep for 3 months in the fridge, but you’ll probably use it all before it goes bad.
+* It does not contain any additives or preservatives.
+If you don’t feel comfortable cooking up a big batch of chili sauce, cut the the recipe in half and try cooking one dish with it. It’ll only take you 40 minutes altogether.
+So far, I have used the sauce to create Sichuan spicy shrimp stir-fry, spicy beef stir-fry with pepper, and Sichuan shredded chicken stir-fry.
+Can’t find your favorite Szechuan dish here? Drop me a note below and I’ll create a recipe for you!
+If you cook this recipe, don’t forget to take a picture and post it to my Facebook fan page. I love seeing your photos!
+
+Print
+Easy Kung Pao Chicken
+
+★★★★★ 5 from 6 reviews
+Ingredients
+
+Peanut
+
+* 1 tablespoon peanut oil (or vegetable oil)
+* 1/3 cup raw peanuts
+Chicken
+
+* 1 (250 grams) chicken breast, cubed
+* 1 tablespoon light soy sauce
+* 2 teaspoons cornstarch
+Sauce
+
+* 1 tablespoon light soy sauce
+* 1 and 1/2 tablespoons Chinkiang vinegar
+* 2 tablespoons sugar
+* 4 tablespoons all-purpose chili garlic sauce (2 – 3 tablespoons for a less spicy dish)
+* 1 teaspoon cornstarch
+Stir Fry
+
+* 1/3 cup chopped Chinese scallion (or green onion)
+* 1/2 cup cubed cucumber
+Instructions
+
+1. Heat peanut oil in a nonstick skillet over medium high heat until warm. Add raw peanuts and turn down to medium heat. Stir occasionally, until the peanuts turn brown and have a nice nutty aroma. Transfer the peanuts to a plate lined with several layers of paper towel to cool. Save the rest of the oil in the skillet for later use.
+ 
+2. Cut chicken breast into 1 to 1.5 cm (1/2 inch) cubes and transfer to a bowl. Add 1 tablespoon light soy sauce and mix well. Add 2 teaspoons cornstarch. Mix by hand until the chicken is evenly coated with a thin layer of starch. Set aside.
+ 
+3. Combine the remaining 1 tablespoon light soy sauce, Chinkiang vinegar, sugar, chili garlic sauce, and the remaining 1 teaspoon cornstarch to a small bowl. Mix well.
+4. Cut and prepare the rest of the veggies.
+ 
+5. Heat the same nonstick skillet again, over medium high heat. If there is not enough oil to cover the bottom of the skillet, add a bit more. When the oil is hot, spread the chicken across the skillet without overlapping the . Let it cook without stirring for 20 seconds. Flip to cook the other side for another 20 seconds. Stir a few times until all surfaces are cooked and slightly browned, but the inside is still raw.
+ 
+6. Add the scallion and stir another few times. Mix the kung pao sauce again and pour it over the chicken. Immediately stir a few times to mix well until the sauce thickens, 20 seconds. Stop heat. Add peanuts and cucumber. Give it one last stir to mix well. Transfer everything to a plate.
+   
+7. Serve warm over steamed rice.
+The nutrition facts are calculated based on 1 of the 3 servings generated by this recipe.
+
+Easy appetizers to go with this dish:
+
+Easy Chinese Cucumber Salad (拍黄瓜)
+Golden Needle Mushroom Salad (凉拌金针菇)
+Green Onion Tofu Salad (小葱拌豆腐)
