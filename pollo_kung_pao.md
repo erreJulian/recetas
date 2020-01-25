@@ -1,5 +1,4 @@
-
-Easy Kung Pao Chicken
+# Easy Kung Pao Chicken
 
 
 A quick and easy kung pao chicken that only requires 20 minutes to prepare. Use this method and you’ll always create moist and tender chicken with no fuss!
@@ -32,7 +31,7 @@ Print
 Easy Kung Pao Chicken
 
 ★★★★★ 5 from 6 reviews
-Ingredients
+## Ingredients
 
 Peanut
 
@@ -54,7 +53,8 @@ Stir Fry
 
 * 1/3 cup chopped Chinese scallion (or green onion)
 * 1/2 cup cubed cucumber
-Instructions
+
+## Instructions
 
 1. Heat peanut oil in a nonstick skillet over medium high heat until warm. Add raw peanuts and turn down to medium heat. Stir occasionally, until the peanuts turn brown and have a nice nutty aroma. Transfer the peanuts to a plate lined with several layers of paper towel to cool. Save the rest of the oil in the skillet for later use.
  
