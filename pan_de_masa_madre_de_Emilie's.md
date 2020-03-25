@@ -13,10 +13,10 @@ Bakers Schedule:
 
 ## Ingredients
 
-    1/4 C (50g) Sourdough Starter previously fed, active and bubbly
-    1 1/3 C + 2 Tbs (350g) Warm Water about 80f (26c)
-    4 C (500g) Bread Flour
-    1 1/2 tsp Fine Sea Salt
+- 1/4 C (50g) Sourdough Starter previously fed, active and bubbly
+- 1 1/3 C + 2 Tbs (350g) Warm Water about 80f (26c)
+- 4 C (500g) Bread Flour
+- 1 1/2 tsp Fine Sea Salt
 
 ## Instructions
 
