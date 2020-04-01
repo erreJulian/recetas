@@ -36,10 +36,10 @@ Condimentos:
  
 ## Preparación 
 
-Blanquear los chorizos por 5 minutos para desgrasarlos. 
-Agregar una base de aceite en la olla y sellar las carnes (menos el chorizo colorado) en cubos de 2 x 2 cm. 
-Retirar las carnes selladas y saltear las verduras picadas en cubitos. 
-Salar y agregar las carnes ya selladas. Condimentar. 
-Agregar el puré de tomate y el chorizo colorado en rodajas.
-Blanquear las lentejas por diez minutos. Agregar las lentejas, mezclar e incorporar el caldo caliente. 
-Finalmente agregar los ingredientes de la guarnición en cubos o rodajas grandes.
+- Blanquear los chorizos por 5 minutos para desgrasarlos. 
+- Agregar una base de aceite en la olla y sellar las carnes (menos el chorizo colorado) en cubos de 2 x 2 cm. 
+- Retirar las carnes selladas y saltear las verduras picadas en cubitos. 
+- Salar y agregar las carnes ya selladas. Condimentar. 
+- Agregar el puré de tomate y el chorizo colorado en rodajas.
+- Blanquear las lentejas por diez minutos. Agregar las lentejas, mezclar e incorporar el caldo caliente. 
+- Finalmente agregar los ingredientes de la guarnición en cubos o rodajas grandes.
