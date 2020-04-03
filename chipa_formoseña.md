@@ -1,4 +1,4 @@
-(# Chipa)[https://misfotosecuencias.com.ar/chipas/]
+# (Chipa)[https://misfotosecuencias.com.ar/chipas/]
 
 ## Ingredientes
 * 2 tazas de almidón de mandioca
