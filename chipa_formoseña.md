@@ -1,17 +1,29 @@
-# [Chipa](https://misfotosecuencias.com.ar/chipas/)
+# Chipa
 
 ## Ingredientes
-* 2 tazas de almidón de mandioca
-* 2 huevos
-* 1/2 taza de leche
-* Quesos varios 300 gr o mas.
-* 1 cucharada de manteca o aceite.
-* sal, Augusto. Digo sal a gusto
+
+- 1/2 taza de agua
+- 1/2 taza de leche
+- 1/4 de taza de aceite de maiz/girasol
+- 1 cucharada de sal
+- 1 taza de harina o fécula de mandioca (se pueden sustituir por 2 tazas de fécula de maicena)
+- 1 huevo
+- 150 gramos de queso rallado
 
 ## Procedimiento.
-1. Antes que nada prendemos el horno para que el calor suba y luego al bajar, tengamos nuestras chipas doraritas.
-2. Ponemos el almidón en la mesada formado una corona. Colocamos los ingredientes y mezclamos hasta lograr una maza homogénea.
-3. Una vez conseguida la maza homogénea. Agregamos tooodo el queso que podamos y mezclamos.
-4. Ahora enmantecamos una fuente para meter al horno.
-5. Acto seguido y sin mas preámbulo hacemos bolitas lo mas parejas posible en cuanto a tamaño y las ordenamos en la fuente. La idea de que sean iguales es para que tengan el mismo tiempo de cocción.
-Derechito al horno hasta que se sienta el olorcito a chipas en toda la casa.
+
+1. Primero pre calentás el horno a 180°.
+2. Ponés a hervir el agua con la leche, la sal y el aceite. Apenas empiece a hervir apagás el fuego y añadis la fécula de una, se hace un engrudo tremendo pero vos seguí mezclando con una cuchara de madera.
+3. Dejás que se enfrie un toqu
+    Primero pre calentás el horno a 180°.
+    Ponés a hervir el agua con la leche, la sal y el aceite. Apenas empiece a hervir apagás el fuego y añadis la fécula de una, se hace un engrudo tremendo pero vos seguí mezclando con una cuchara de madera.
+    Dejás que se enfrie un toque (podés pasar la mezcla a un bowl si querés hacerlo más rápido) y le agregás el huevo. Se va a hacer un quilombo de nuevo, pero vos mezclá. (si el gordo te dice mezclá, mezclá)
+    Por último le añadís el queso, unis todo y  untandote un poco de aceite en las manos, empezás a hacer las bolitas.
+    Podés hacerlas más grandes para que sean tipo el “pao de queijo” brasilero o más chiquitas para los chipá clásicos.
+    Los ponés en una fuente para horno, dejando espacio entre ellos porque crecen, y los horneás durante unos 20 o 25 minutos, o hasta que los veas bien dorados.
+    Los dejás enfriar un toque (sí podés) y listo, a disfrutar de la receta de chipá caseros!
+e (podés pasar la mezcla a un bowl si querés hacerlo más rápido) y le agregás el huevo. Se va a hacer un quilombo de nuevo, pero vos mezclá. (si el gordo te dice mezclá, mezclá)
+4. Por último le añadís el queso, unis todo y  untandote un poco de aceite en las manos, empezás a hacer las bolitas.
+5. Podés hacerlas más grandes para que sean tipo el “pao de queijo” brasilero o más chiquitas para los chipá clásicos.
+6. Los ponés en una fuente para horno, dejando espacio entre ellos porque crecen, y los horneás durante unos 20 o 25 minutos, o hasta que los veas bien dorados.
+7. Los dejás enfriar un toque (sí podés) y listo, a disfrutar de la receta de chipá caseros!
